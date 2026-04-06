@@ -3,7 +3,7 @@
 ## Anggota Kelompok
 
 * Nama: 
-* Nama:
+* Nama: Shifa Azzuhra (250810701100088) (Nomor 3 & 4)
 * Nama:
 * Nama: Aulia Faradina (250810701100019) (Nomor 6 & 8)
 * Nama:
